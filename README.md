@@ -25,6 +25,8 @@ Aquí encontrarás artículos sobre:
 
 - [Fotografía artística para bodas bien hecha](fotografia-artistica-para-bodas-bien-hecha.html)
 
+- [15 ideas de fotos para boda elegante](ideas-de-fotos-para-boda-elegante.html)
+
 ## Quinceañeros
 
 - [Fotógrafo de Quinceañeros en Puerto Rico](fotografo-de-quinceaneros-en-puerto-rico.html)
