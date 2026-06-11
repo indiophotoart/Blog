@@ -31,6 +31,8 @@ Aquí encontrarás artículos sobre:
 
 - [Sesión de fotos quinceañera bien planificada](sesion-de-fotos-quinceanera-bien-planificada.html)
 
+- [Cómo elegir fotógrafo para quinceañero](como-elegir-fotografo-para-quinceanero.html).
+
 ## Próximamente
 
 - Ideas para sesiones Love Story
