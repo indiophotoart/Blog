@@ -35,6 +35,8 @@ Aquí encontrarás artículos sobre:
 
 - [Cómo elegir fotógrafo para quinceañero](como-elegir-fotografo-para-quinceanero.html).
 
+- [15 poses para fotos de quinceañera](poses-para-fotos-de-quinceanera.html)
+
 ## Próximamente
 
 - Ideas para sesiones Love Story
